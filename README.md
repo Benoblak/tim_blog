@@ -1,6 +1,6 @@
 # Timothy SOON
 - Email: soonlijian@gmail.com 
-- Contract: +65 9845-1835
+- Contact: +65 9845-1835
 
 ## EXPERIENCE
 ### Telenor Procurement Company (TPC)
